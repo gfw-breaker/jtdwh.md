@@ -14,7 +14,7 @@
 #### [后记](chapters/9.md)
 
 ---
-#### 《解体党文化》 电子书下载：[TXT版](https://cdn.jsdelivr.net/gh/gfw-breaker/jtdwh.md/resources/jtdwh.txt) &nbsp;|&nbsp; [PDF版](https://cdn.jsdelivr.net/gh/gfw-breaker/jtdwh.md/resources/9ping.pdf) &nbsp;|&nbsp; [EPUB版](https://cdn.jsdelivr.net/gh/gfw-breaker/jtdwh.md/resources/jtdwh.epub)
+#### 《解体党文化》 电子书下载：[TXT版](https://cdn.jsdelivr.net/gh/gfw-breaker/jtdwh.md/resources/jtdwh.txt) &nbsp;|&nbsp; [PDF版](https://cdn.jsdelivr.net/gh/gfw-breaker/jtdwh.md/resources/jtdwh.pdf) &nbsp;|&nbsp; [EPUB版](https://cdn.jsdelivr.net/gh/gfw-breaker/jtdwh.md/resources/jtdwh.epub)
 ---
 
 中共的历史是谎言与暴行交织的历史，而其谎言却分为两个层面。第一个层面，在于对事实本身的掩盖或歪曲；第二个层面，则在于给人灌输一套邪恶的善恶标准和扭曲的思维方式。这种灌输一方面以中共所劫持的国家暴力为后盾，另一方面更通过垄断的所有社会资源而强迫人从记事或学语的第一天即开始耳濡目染。
